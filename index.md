@@ -4,6 +4,7 @@ Robert Langdon is a professor for symbolism in several books and films he is nee
 
 ## The unorthodox professor
 
-*open minded
-*claustrophobic
-*wears watch with Mickey Mouse
+* open minded
+* claustrophobic
+* wears watch with Mickey Mouse
+* more to see
