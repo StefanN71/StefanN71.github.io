@@ -8,3 +8,7 @@ Robert Langdon is a professor for symbolism in several books and films he is nee
 * claustrophobic
 * wears watch with Mickey Mouse
 * more to see
+
+>Everything is possible. 
+>The impossible just takes longer.
+
